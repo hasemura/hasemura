@@ -1,4 +1,4 @@
-hihi!! my name's remiel, rem for short! i'm eighteen .. i don't do great socially, so you may have to be somewhat patient but please feel free to interact!! usually in the pg enstars area with [bf](https://github.com/clownpoetry) and [son](https://github.com/Ffluffernutt);; who are very awesome and i love them a lot... euem check rentry for more info if needed!
+hihi!! my name's remiel, rem for short! i'm nineteen .. i don't do great socially, so you may have to be somewhat patient but please feel free to interact!! usually in the pg enstars area with [bf](https://github.com/clownpoetry) and [son](https://github.com/Ffluffernutt);; who are very awesome and i love them a lot... euem check rentry for more info if needed!
 ![blue divider](https://64.media.tumblr.com/f0c18941348b84103d3415184bf38848/f7ec0cffe6574c86-c3/s2048x3072/6206d9d13b3811559c4d1d50a0ea6fde9279875d.pnj)
 <p align="center">
   <img width="100" height="100" src="https://64.media.tumblr.com/4f56292fa05019edd1199104fcc703e0/655a1737386c55ca-6d/s250x400/bbbb9f16ced73dc55d2ded6fb8bc36a157cda963.pnj">
